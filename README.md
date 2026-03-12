@@ -1,7 +1,7 @@
 ## Hi there 👋 I Am Harish
 
 # 💫 About Me:
-I am looking for a job And also recent graduate in 2025.
+I have Completed MCA in 2025.I am Looking for a job In It Companies as a Fresher.
 
 
 # 💻 Tech Stack:
